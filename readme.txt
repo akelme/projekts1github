@@ -1,1 +1,2 @@
-Hey, zeme!
+Hey, Hey,  zeme!
+Mani sauc Anna
